@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @OmegaFennec
+- 👀 I’m interested in Music, gaming and furry shit-
+- 🌱 I’m currently learning C# by creating a massive content mod for Terraria (Help me)
+- 📫 How to reach me @omegafennec on either discord or telegram
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I Play 5 instruments and can speak 4 langauges :3
